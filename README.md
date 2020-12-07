@@ -1,7 +1,7 @@
 
       INTERESTING TEMPLES IN INDIA
 
-
+https://images.app.goo.gl/kUk2kejhwEsJvf3h6
 
 This is the world famous Kailasa temple at Ellora and let's look objectively into who could have built this amazing structure. By the end of this, I hope you will agree with me that our history might completely wrong, and that this temple was built by a very advanced civilization.
  
